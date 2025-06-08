@@ -15,8 +15,8 @@ Each folder is named by the week number for easy navigation through the tasks.
 
 For any queries or collaborations, feel free to reach out:
 
-- Email: meetgandhi@example.com  
-- LinkedIn: [https://www.linkedin.com/in/meetgandhi](https://www.linkedin.com/in/meetgandhi)
+- Email: meetgandhi4041@gamil.com  
+- LinkedIn: [https://www.linkedin.com/in/meetgandhi4041](https://www.linkedin.com/in/meetgandhi4041/)
 
 ---
 
